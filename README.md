@@ -44,5 +44,5 @@ PC with LT Spice Software
 ![WhatsApp Image 2025-12-01 at 2 38 05 PM](https://github.com/user-attachments/assets/e609dc3f-ed44-43b9-b900-54902e6ad12f)
 
 ## Result:
-![WhatsApp Image 2025-12-01 at 2 38 15 PM](https://github.com/user-attachments/assets/df89a48a-bd91-4c63-b88d-383ab31e30bb)
+![WhatsApp Image 2025-12-01 at 2 38 15 PM](https://github.com/user-attachments/assets/df89a48a-bd91-4c63-b88d-383ab31e30bb)  
 
